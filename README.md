@@ -1,0 +1,2 @@
+# shakhrisabz
+kamchiligi bor
